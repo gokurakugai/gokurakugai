@@ -1,5 +1,4 @@
-## Hi there 👋
-
+GUYS PLEASE CHECK OUT THE 2ND RENTRY HELP A MINOR OUT PLEASE
 <!--
 **gokurakugai/gokurakugai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
